@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Tony/@ginga-ninja823f
+- 👀 I’m interested in Coding, Gaming, and Web desgin
+- 🌱 I’m currently learning python
+- 💞️ I’m looking for any help that can be given on every type of coding
+- 📫 You can reach me @tonycornell211@gmail.com
